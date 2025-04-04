@@ -2,15 +2,23 @@ https://hompa.medium.com/%D9%85%D8%B9%D8%B1%D9%81%DB%8C-%D9%86%D9%82%D8%A7%D8%B4
 
 https://www.linkedin.com/pulse/%25D9%2585%25D8%25B9%25D8%25B1%25D9%2581%25DB%258C-%25D9%2586%25D9%2582%25D8%25A7%25D8%25B4%25DB%258C-%25D8%25B3%25D8%25A7%25D8%25AE%25D8%25AA%25D9%2585%25D8%25A7%25D9%2586-%25D8%25AF%25D8%25B1-%25D8%25AA%25D9%2587%25D8%25B1%25D8%25A7%25D9%2586-savda-masa-dpgqf/
 
-http://hopa.nasrblog.ir/
+https://hopa.nasrblog.ir/post-154550.html
+
+https://marclefur.takblog.net/Post/1/++++%D9%86%D9%82%D8%A7%D8%B4%DB%8C+%D8%B3%D8%A7%D8%AE%D8%AA%D9%85%D8%A7%D9%86+%D8%AF%D8%B1+%D8%AA%D9%87%D8%B1%D8%A7%D9%86
+
+https://zenwriting.net/hami/m-rfy-nqshy-skhtmn-dr-thrn
+https://paint.over-blog.com/homepaint_tehran1
+https://paint.over-blog.com/homepaint_tehran1
+
+
+https://hopa.nasrblog.ir/
 https://marclefur.takblog.net/
 http://samdhprint.blogfa.com/
-https://hami.simdif.com/
+
 http://kasbokareonline.yektablog.net
 https://zenwriting.net/hami
 https://paint.over-blog.com/
 https://hompa.hpage.com/
-https://hompa.blog.fc2.com/
 https://www.bloglovin.com/@hm1100
 https://hami.canalblog.com/
 
