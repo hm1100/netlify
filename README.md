@@ -5,9 +5,17 @@ https://independent.academia.edu/hm110011/
 https://www.instructables.com/نقاشی-ساختمان-در-تهران/
 https://www.tumblr.com/blog/naqqashi
 https://homepa.bearblog.dev/
+https://write.as/hami110/
+https://ham2100.mataroa.blog/
+
+https://ham2100.mataroa.blog/blog/5bf-f0-806/
+
 https://www.instructables.com/%D9%86%D9%82%D8%A7%D8%B4%DB%8C-%D8%B3%D8%A7%D8%AE%D8%AA%D9%85%D8%A7%D9%86-%D8%AF%D8%B1-%D8%AA%D9%87%D8%B1%D8%A7%D9%86/
 
 https://hompa.medium.com/%D9%85%D8%B9%D8%B1%D9%81%DB%8C-%D9%86%D9%82%D8%A7%D8%B4%DB%8C-%D8%B3%D8%A7%D8%AE%D8%AA%D9%85%D8%A7%D9%86-%D8%AF%D8%B1-%D8%AA%D9%87%D8%B1%D8%A7%D9%86-db30082aa6f9
+https://homepa110.wordpress.com/2025/04/04/%d9%86%d9%82%d8%a7%d8%b4%db%8c-%d8%b3%d8%a7%d8%ae%d8%aa%d9%85%d8%a7%d9%86-%d8%af%d8%b1-%d8%aa%d9%87%d8%b1%d8%a7%d9%86/
+
+https://write.as/hami110/nqshy-skhtmn-dr-thrn-ykhy-z-khdmty-st-khh-zybyy-w-nwszy-fdhy-dkhly-w
 
 https://www.linkedin.com/pulse/%25D9%2585%25D8%25B9%25D8%25B1%25D9%2581%25DB%258C-%25D9%2586%25D9%2582%25D8%25A7%25D8%25B4%25DB%258C-%25D8%25B3%25D8%25A7%25D8%25AE%25D8%25AA%25D9%2585%25D8%25A7%25D9%2586-%25D8%25AF%25D8%25B1-%25D8%25AA%25D9%2587%25D8%25B1%25D8%25A7%25D9%2586-savda-masa-dpgqf/
 
