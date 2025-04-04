@@ -1,4 +1,5 @@
 [https://homepa110.wordpress.com/
+https://ham110.weebly.com/
 https://hompai.wixsite.com/hompa/blog
 https://homepainter-242449232.hs-sites-na2.com/
 https://www.mindmingles.com/blog-submission-sites/
