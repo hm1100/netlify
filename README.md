@@ -1,4 +1,6 @@
 https://homepa110.wordpress.com/
+https://hompai.wixsite.com/hompa/blog
+https://homepainter-242449232.hs-sites-na2.com/
 https://www.mindmingles.com/blog-submission-sites/
 https://www.wattpad.com/user/wattp110
 https://independent.academia.edu/hm110011/
@@ -7,9 +9,13 @@ https://www.tumblr.com/blog/naqqashi
 https://homepa.bearblog.dev/
 https://write.as/hami110/
 https://ham2100.mataroa.blog/
+https://hami.lykhari.com/
 
 https://ham2100.mataroa.blog/blog/5bf-f0-806/
+https://homepainter-242449232.hs-sites-na2.com/%D9%86%D9%82%D8%A7%D8%B4%DB%8C-%D8%B3%D8%A7%D8%AE%D8%AA%D9%85%D8%A7%D9%86-%D8%AF%D8%B1-%D8%AA%D9%87%D8%B1%D8%A7%D9%86
+https://iran-paint.blogspot.com/2024/06/%20%20.html?zx=2382f4c53d180db1
 
+https://hompai.wixsite.com/hompa/post/%D9%86%D9%82%D8%A7%D8%B4%DB%8C-%D8%B3%D8%A7%D8%AE%D8%AA%D9%85%D8%A7%D9%86-%D8%AF%D8%B1-%D8%AA%D9%87%D8%B1%D8%A7%D9%86
 https://www.instructables.com/%D9%86%D9%82%D8%A7%D8%B4%DB%8C-%D8%B3%D8%A7%D8%AE%D8%AA%D9%85%D8%A7%D9%86-%D8%AF%D8%B1-%D8%AA%D9%87%D8%B1%D8%A7%D9%86/
 
 https://hompa.medium.com/%D9%85%D8%B9%D8%B1%D9%81%DB%8C-%D9%86%D9%82%D8%A7%D8%B4%DB%8C-%D8%B3%D8%A7%D8%AE%D8%AA%D9%85%D8%A7%D9%86-%D8%AF%D8%B1-%D8%AA%D9%87%D8%B1%D8%A7%D9%86-db30082aa6f9
