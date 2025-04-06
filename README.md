@@ -1,3 +1,15 @@
+https://virgool.io/
+https://www.pixellair.ir/dashboard
+https://medad.io/SignIn/
+https://omigo.ir/
+https://www.blogfa.com/
+https://blog.ir/
+http://parsiblog.com/
+https://blogtez.com/
+https://www.royablog.ir/
+https://www.farsiblog.com/
+https://loxblog.com/
+
 [https://homepa110.wordpress.com/
 https://ham110.weebly.com/
 https://hompai.wixsite.com/hompa/blog
